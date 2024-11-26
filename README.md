@@ -1,3 +1,1 @@
 # Don-galleto-example
-
-# GOGOGOGOGOGO
